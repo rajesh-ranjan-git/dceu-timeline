@@ -2,11 +2,17 @@
 
 ## DC movies in chronological order
 
-1. [Batman Begins](https://google.com/search?q=Batman+Begins+2005) (June 17, 2005)
+1. [Batman Begins](https://google.com/search?q=Batman+Begins+2005) (June 17, 2005)  
+   **Starring:** [Christian Bale](https://google.com/search?q=Christian+Bale), [Katie Holmes](https://google.com/search?q=Katie+Holmes), [Cillian Murphy](https://google.com/search?q=Cillian+Murphy), [Michael Caine](https://google.com/search?q=Michael+Caine), [Liam Neeson](https://google.com/search?q=Liam+Neeson), [Gary Oldman](https://google.com/search?q=Gary+Oldman), [Morgan Freeman](https://google.com/search?q=Morgan+Freeman), [Ken Watanabe](https://google.com/search?q=Ken+Watanabe), [Mark Boone Jr.](https://google.com/search?q=Mark+Boone+Jr)  
+   **Directed By:** [Christopher Nolan](https://google.com/search?q=Christopher+Nolan)
 
-2. [The Dark Knight](https://google.com/search?q=The+Dark+Knight+2008) (July 18, 2008)
+2. [The Dark Knight](https://google.com/search?q=The+Dark+Knight+2008) (July 18, 2008)  
+   **Starring:** [Christian Bale](https://google.com/search?q=Christian+Bale), [Heath Ledger](https://google.com/search?q=Heath+Ledger), [Gary Oldman](https://google.com/search?q=Gary+Oldman), [Aaron Eckhart](https://google.com/search?q=Aaron+Eckhart), [Michael Caine](https://google.com/search?q=Michael+Caine), [Maggie Gyllenhaal](https://google.com/search?q=Maggie+Gyllenhaal), [Morgan Freeman](https://google.com/search?q=Morgan+Freeman), [Cillian Murphy](https://google.com/search?q=Cillian+Murphy), [Néstor Carbonell](https://google.com/search?q=Néstor+Carbonell)  
+   **Directed By:** [Christopher Nolan](https://google.com/search?q=Christopher+Nolan)
 
-3. [The Dark Knight Rises](https://google.com/search?q=The+Dark+Knight+Rises+2012) (July 20, 2012)
+3. [The Dark Knight Rises](https://google.com/search?q=The+Dark+Knight+Rises+2012) (July 20, 2012)  
+   **Starring:** [Christian Bale](https://google.com/search?q=Christian+Bale), [Anne Hathaway](https://google.com/search?q=Anne+Hathaway), [Joseph Gordon-Levitt](https://google.com/search?q=Joseph+Gordon+Levitt), [Michael Caine](https://google.com/search?q=Michael+Caine), [Gary Oldman](https://google.com/search?q=Gary+Oldman), [Marion Cotillard](https://google.com/search?q=Marion+Cotillard), [Morgan Freeman](https://google.com/search?q=Morgan+Freeman), [Matthew Modine](https://google.com/search?q=Matthew+Modine), [Cillian Murphy](https://google.com/search?q=Cillian+Murphy)  
+   **Directed By:** [Christopher Nolan](https://google.com/search?q=Christopher+Nolan)
 
 4. [Wonder Woman](https://google.com/search?q=Wonder+Woman+2017) (June 2, 2017)  
    **Starring:** [Gal Gadot](https://google.com/search?q=Gal+Gadot), [Chris Pine](https://google.com/search?q=Chris+Pine), [Connie Nielsen](https://google.com/search?q=Connie+Nielsen), [Robin Wright](https://google.com/search?q=Robin+Wright), [Danny Huston](https://google.com/search?q=Danny+Huston), [Emily Carey](https://google.com/search?q=Emily+Carey), [Elena Anaya](https://google.com/search?q=Elena+Anaya), [Lilly Aspell](https://google.com/search?q=Lilly+Aspell), [Lucy Davis](https://google.com/search?q=Lucy+Davis)  

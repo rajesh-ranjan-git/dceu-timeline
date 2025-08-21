@@ -83,7 +83,7 @@
 
 21. [Superman](https://google.com/search?q=Superman+2025)(July 11, 2025)  
     **Starring:** [David Corenswet](https://google.com/search?q=David+Corenswet), [Rachel Brosnahan](https://google.com/search?q=Rachel+Brosnahan), [Nicholas Hoult](https://google.com/search?q=Nicholas+Hoult), [Edi Gathegi](https://google.com/search?q=Edi+Gathegi), [Anthony Carrigan](https://google.com/search?q=Anthony+Carrigan), [Nathan Fillion](https://google.com/search?q=Nathan+Fillion), [Isabela Merced](https://google.com/search?q=Isabela+Merced)  
-    **Directed By:** [James+Gunn](https://google.com/search?q=James+Gunn)
+    **Directed By:** [James Gunn](https://google.com/search?q=James+Gunn)
 
 22. [The Batman Part II](The+Batman+Part+II) (October 1, 2027)  
     **Starring:** [Robert Pattinson](https://google.com/search?q=Robert+Pattinson), [Zoë Kravitz](https://google.com/search?q=Zoë+Kravitz), [Paul Dano](https://google.com/search?q=Paul+Dano), [Jeffrey Wright](https://google.com/search?q=Jeffrey+Wright), [John Turturro](https://google.com/search?q=John+Turturro), [Peter Sarsgaard](https://google.com/search?q=Peter+Sarsgaard), [Andy Serkis](https://google.com/search?q=Andy+Serkis)  
